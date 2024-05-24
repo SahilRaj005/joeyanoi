@@ -3,7 +3,7 @@
 - 🌱 I’m currently doing projects. 
 - 💞️ I’m looking to gain more experince in tech world.
 - 📫 email-sahilrajsingh4477@gmail.com.
-- 😄 Pronouns: hustlinng beyond limits.
+- 😄 Pronouns: hustling beyond limits.
 - ⚡ Fun fact: ready to race.
 -  
 
