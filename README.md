@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sahilraj
-- 👀 I’m interested in coding.
+- 👀 I’m interested in contributing my efforts as a Data Scientist in this tech world.
 - 🌱 I’m currently doing projects. 
 - 💞️ I’m looking to gain more experince in tech world.
 - 📫 email-sahilrajsingh4477@gmail.com.
